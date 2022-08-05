@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Amaw1337
+- 👀 I’m interested in any new information
+- 🌱 I’m currently learning Python!
+- 📫 reach me on my discord Amaw#7672
